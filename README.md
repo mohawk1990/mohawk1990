@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mohawk1990 but friends call me Johnny
 - 👀 I’m interested in ... european travel, american football, football, sports in general
-- 🌱 I’m currently learning ... immersive language skills in Czech
+- 🌱 I’m currently learning ... immersive language skills in Czech and I am in love with Prague.
 - 💞️ I’m looking to collaborate on ... building models of revenue, risk v reward potential and coding principles.
 - 📫 How to reach me ... via email, or close friends by Telegram or WhatsApp
 - 😄 Pronouns: ... he/him
